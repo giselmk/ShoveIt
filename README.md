@@ -27,3 +27,6 @@ Metal started with the traditional Heavy Metal. As time past, this genre split a
 
 ## Personal Favorites
 I personally enjoy nu-metal, metal core, and NWOBHM bands.
+<img width="600" alt="Screen Shot 2021-10-01 at 5 21 27 AM" src="https://user-images.githubusercontent.com/91553853/135619071-1ea2221a-bbb3-46ed-a15c-2ccb9a368e46.png">
+
+> Untouchables, Korn
