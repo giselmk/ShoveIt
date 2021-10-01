@@ -16,8 +16,14 @@ Metal started with the traditional Heavy Metal. As time past, this genre split a
 - **New Wave of British Heavy Metal**
   - Basically influenced all metal that we hear of today.
   - Bands like *Judas Priest, Iron Maiden, Deep Purple*
+<img width="737" alt="Screen Shot 2021-10-01 at 5 04 13 AM" src="https://user-images.githubusercontent.com/91553853/135617434-b99d0358-57be-4960-b3ff-7777280df27b.png">
+
+> Iron Maiden, Iron Maiden
 
 - Nu-Metal
 - Power Metal
 - Progressive Metal
 - Thrash Metal
+
+## Personal Favorites
+I personally enjoy nu-metal, metal core, and NWOBHM bands.
